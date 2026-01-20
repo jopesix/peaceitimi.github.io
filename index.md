@@ -47,6 +47,6 @@ I sometimes moonlight as an angel investor. Through HoaQ, Future Africa & the Hu
 
 
 ## Contact
-Email: you@example.com
+Email: peace@rivva.app
 
 
